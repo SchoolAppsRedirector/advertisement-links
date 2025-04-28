@@ -1,3 +1,11 @@
 # Advertisement Links
+Hi there! Choose any of the links provided below! They work perfectly and there are no scams at all! If you want to learn more, click <a href="/schoolappsredirector/advertisement-links/README.md">here</a> to learn more! :)
 
-<img src="https://img-cdn.clinch.co/img2/yldcQE/1456/180/3/0a0a0a0/?u=%2F%2Fcdn.clinch.co%2Fa_styles%2F4069%2F728a90%2Fassets%2Fbar_1658334248046_compressed.png&ctx=lcDNBc7NOBbOAAGhb8A" />
+Safeway Organics links
+1. Safeway Organics thumbnail 1
+- Safeway thumbnail: (Unavailable)
+- Safeway link: <a href="https://www.safeway.com/lp/o-organics-organic.html?cmpid=ds_swy_int_own_dbm_20250423_419473221_419473221_106863_MerkleENT&clinchClickId_yldcQE=x1Vj0gAAAE7wP5PZJGMwMGQ4OThhLTNjNjMtNDFlYS1iNzFkLTU0OGE3YTdmZTQ5ZdkkYTMzY2Y1YjktYzQ3OS00YTRlLWFhZDYtNTI2NTYzY2I4Zjk2wA">link</a>
+
+2. Safeway Organics thumbnail 2
+- Safeway Organics morning thumbnail: (Unavailable)
+- link: <a href="">link</a>
