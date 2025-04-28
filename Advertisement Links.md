@@ -1,5 +1,5 @@
 # Advertisement Links
-Hi there! Choose any of the links provided below! They work perfectly and there are no scams at all! If you want to learn more, click <a href="/schoolappsredirector/advertisement-links/README.md">here</a> to learn more! :)
+Hi there! Choose any of the links provided below! They work perfectly and there are no scams at all! If you want to learn more, click <a href="/README.md">here</a> to learn more! :)
 
 Safeway Organics links
 1. Safeway Organics thumbnail 1
